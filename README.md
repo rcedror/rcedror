@@ -1,4 +1,4 @@
-### Oi. 👋 Sou o Renato Cedro
+### Oi. 👋 Sou Renato Cedro
 
 <!--
 Here are some ideas to get you started:
